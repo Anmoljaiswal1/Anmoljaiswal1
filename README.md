@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Anmoljaiswal1
-- 👀 I’m interested in Analyst
+- 👀 I’m interested in Data Analyst 
 - 🌱 I’m currently learning Business Analyst 
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me 8318132699
